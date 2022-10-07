@@ -5,7 +5,7 @@
 - 💬 Pergunte-me sobre planos futuros
 - 📫 Como chegar até mim: taisrf@outlook.com
 - 😄 Pronomes: ela/dela
-- ⚡ Curiosidade: Dou aula de programaçao para crianças 
+- ⚡ Curiosidade: Dou aula de programaçao para crianças na Byju's Future School
 
 
 <div align="center">
